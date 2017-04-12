@@ -1,2 +1,2 @@
 # hello-world2
-I thought this was my first repository but apparently it is number 2
+Fuck this shit, I delete the comments and start all over again!
